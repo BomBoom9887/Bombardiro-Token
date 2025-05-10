@@ -36,11 +36,7 @@ Zero tax. Zero chill. Full meme.
 
 ## 🌐 Community
 
-Coming soon:
-
-- Twitter
-- Telegram
-- Discord
+https://x.com/BombardiroToken
 
 Follow the croc and stay explosive.
 
